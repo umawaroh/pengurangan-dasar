@@ -1,0 +1,2 @@
+# pengurangan-dasar
+pengurangan dasar
